@@ -5,7 +5,8 @@
 4) cubix -- muhammad.hafeezullah@cubixlabs.com <br>
 5) https://fusionlogics.com/ -- career@fusionlogics.com <br>
 6) https://launchbox.pk/ -- arbaaz.mirza@launchbox.pk <br>
-7) https://www.tafsol.com/ -- hiring@tafsol.com<br>
-8) https://www.goodcore.co.uk/careers/fresh-graduate-intake-program/
-9) https://qlu.ai/ -- umarikhanniazi60@gmail.com
+7) https://www.tafsol.com/ -- hiring@tafsol.com <br>
+8) https://www.goodcore.co.uk/careers/fresh-graduate-intake-program/ <br>
+9) https://qlu.ai/ -- umarikhanniazi60@gmail.com <br>
+10) https://gomotive.com/company/careers/ -- https://www.linkedin.com/in/shehzad-khan-235619ba
 
