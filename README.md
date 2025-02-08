@@ -7,3 +7,5 @@
 6) https://launchbox.pk/ -- arbaaz.mirza@launchbox.pk <br>
 7) https://www.tafsol.com/ -- hiring@tafsol.com<br>
 8) https://www.goodcore.co.uk/careers/fresh-graduate-intake-program/
+9) https://qlu.ai/ -- umarikhanniazi60@gmail.com
+
