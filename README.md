@@ -5,3 +5,4 @@
 4) cubix -- muhammad.hafeezullah@cubixlabs.com <br>
 5) https://fusionlogics.com/ -- career@fusionlogics.com <br>
 6) https://launchbox.pk/ -- arbaaz.mirza@launchbox.pk <br>
+7) https://www.tafsol.com/ -- <br>
