@@ -4,3 +4,4 @@
 3) https://sofstica.com/career/ -- anum.ali@sofstica.com & fabaha.ansari@sofstica.com <br>
 4) cubix -- muhammad.hafeezullah@cubixlabs.com <br>
 5) https://fusionlogics.com/ -- career@fusionlogics.com <br>
+6) https://launchbox.pk/ -- arbaaz.mirza@launchbox.pk <br>
