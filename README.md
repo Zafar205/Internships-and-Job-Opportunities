@@ -1,4 +1,4 @@
-# Jobs & Internships
+# Jobs & Internships in Karachi
 1) https://atompoint.com/internship-program/ -- sadaf.a@atompoint.com <br>
 2) https://cognitiveitsolutions.ca/jobs  --  tanveer@cognitiveitsolutions.ca <br>
 3) https://sofstica.com/career/ -- anum.ali@sofstica.com & fabaha.ansari@sofstica.com <br>
