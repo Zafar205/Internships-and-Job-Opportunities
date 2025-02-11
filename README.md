@@ -8,5 +8,10 @@
 7) https://www.tafsol.com/ -- hiring@tafsol.com <br>
 8) https://www.goodcore.co.uk/careers/fresh-graduate-intake-program/ <br>
 9) https://qlu.ai/ -- umarikhanniazi60@gmail.com <br>
-10) https://gomotive.com/company/careers/ -- https://www.linkedin.com/in/shehzad-khan-235619ba
+10) https://gomotive.com/company/careers/ -- https://www.linkedin.com/in/shehzad-khan-235619ba   <br>
+11) https://quickers.com/ -- careers@quickers.com <br>
+12) https://www.engro.com/join-us/management-trainee-enablers-program/  <br>
+13) https://www.hulhub.com/careers  <br>
+14) https://stackuptechnologies.com/ -- hr@stackuptechnologies.com
+15) 
 
